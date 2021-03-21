@@ -1,7 +1,7 @@
 # Meet-me-Halfway-Jeong-Yunho
 hey im here with a one-shot imagine, i would write anything. but i decided to jump out of my comfort zone and write an imagine for any fellow atiny here. hope you enjoy!
 
-AU
+AU: *vampire/action/fluff*
 
 
   "You idiot! how could you tell him!?" You slightly raised your voice at your friend. "Don't over-react Y/n it's fine-", "Fine Wooyoung? FINE!? out of all people I trust you not to tell my crush I like him and you tell him anyway!". Young raised his hands in defense, "it slipped out!" "Jung don't lie to me-" the bell rung. You just sighed and grabbed your things walking out of there not being able to finish your arguement.
